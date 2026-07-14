@@ -1,2 +1,2 @@
-![Texto](54SemTítulo_20260714202002.png)
+![Texto](Screenshot_20260714_202330_Gallery.jpg)
 
