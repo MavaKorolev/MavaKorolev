@@ -4,4 +4,4 @@ what is wrong with him?
 
 [PT Walk of Fame](https://github.com/pt-walk-of-fame)  and [Title town](https://github.com/title-town)
 
-thank you smm ^ω^ 
+Thank you ( ﾟーﾟ)...
