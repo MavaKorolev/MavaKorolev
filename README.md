@@ -2,4 +2,6 @@ what is wrong with him?
 
 ![Texto](Screenshot_20260714_202330_Gallery.jpg)
 
-[PT Walk of Fame](https://github.com/pt-walk-of-fame)  aww thank you (^3^)
+[PT Walk of Fame](https://github.com/pt-walk-of-fame)  and [Title town](https://github.com/title-town)
+
+thank you smm ^ω^ 
