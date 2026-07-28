@@ -1,4 +1,4 @@
-What is wrong with him?
+The cat concerns itself.
 
 ![Texto](Screenshot_20260714_202330_Gallery.jpg)
 
