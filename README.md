@@ -1,4 +1,4 @@
-The cat concerns itself with award accounts.
+The cat concerns itself about award accounts.
 
 ![Texto](Screenshot_20260714_202330_Gallery.jpg)
 
