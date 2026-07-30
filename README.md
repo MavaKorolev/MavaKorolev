@@ -1,6 +1,8 @@
 The cat concerns itself about award accounts.
 
 ![Texto](Screenshot_20260714_202330_Gallery.jpg)
+[strawpage](https://mavakorolev.straw.page)
+
 
 
 [Pt-fashion](https://github.com/pt-fashion)
