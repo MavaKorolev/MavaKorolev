@@ -1,7 +1,7 @@
-The cat concerns itself about award accounts.
+The cat has a [strawpage](https://mavakorolev.straw.page) now.
 
 ![Texto](Screenshot_20260714_202330_Gallery.jpg)
-[strawpage](https://mavakorolev.straw.page)
+
 
 
 
