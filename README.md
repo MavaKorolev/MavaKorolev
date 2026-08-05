@@ -1,6 +1,4 @@
-The cat has a [strawpage](https://mavakorolev.straw.page) now.
-
-![Texto](Screenshot_20260714_202330_Gallery.jpg)
+Redoing all the page
 
 
 
