@@ -1,5 +1,3 @@
-[lesgo](https://github.com/MavaKorolev/MavaKorolev/blob/main/87%20Sem%20T%C3%ADtulo.png)
-
 
 [straw](https://mavakorolev.straw.page)
 
