@@ -1,5 +1,5 @@
 
-[straw](https://mavakorolev.straw.page)
+. ݁₊ ⊹ [straw](https://mavakorolev.straw.page) . ݁˖ . ݁
 
 ![yay](https://github.com/MavaKorolev/MavaKorolev/blob/main/95%20Sem%20T%C3%ADtulo_20260816145410.png)
 
