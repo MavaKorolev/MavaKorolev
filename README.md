@@ -1,4 +1,4 @@
-![1pt]()
+![1pt](https://github.com/MavaKorolev/MavaKorolev/blob/main/87%20Sem%20T%C3%ADtulo_20260816205839.png)
 
 
 . ݁₊ ⊹ [straw](https://mavakorolev.straw.page) . ݁˖ . ݁
