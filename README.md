@@ -7,4 +7,4 @@
 
 shoto of ponytown i GUESSSS
 
-![2pt]()
+![2pt](https://github.com/MavaKorolev/MavaKorolev/blob/main/97%20Sem%20T%C3%ADtulo_20260816210626.png)
