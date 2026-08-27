@@ -3,7 +3,7 @@
 . ݁₊ ⊹ [s](https://mavakorolev.straw.page)traw. ݁˖ . ݁
 
  
-<a href="https://mavakorolev.straw.page">
+<a href="(https://mavakorolev.straw.page)">
   <img src="![flin](https://github.com/MavaKorolev/blob/main/98%20Sem%20T%C3%ADtulo_20260816210712.png?raw=true)" width="300" alt="flin">
 </a>
 
