@@ -5,8 +5,8 @@
 </div>
 
 
- 
 [![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/98%20Sem%20T%C3%ADtulo_20260816210712.png)](https://mavakorolev.straw.page)
+
 
 
  
