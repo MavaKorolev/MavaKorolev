@@ -3,8 +3,7 @@
 . ݁₊ ⊹ [s](https://mavakorolev.straw.page)traw. ݁˖ . ݁
 
  
- <img src="https://github.com" width="300" alt="![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/98%20Sem%20T%C3%ADtulo_20260816210712.png)">
-
+ <img src="![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/98%20Sem%20T%C3%ADtulo_20260816210712.png)" width="300" alt="[flin]"
  
 Shoto of pt i GUESS, pt artist [title town,](https://github.com/title-town) [walk of fame,](https://github.com/pt-walk-of-fame) [pt fashion,](https://github.com/pt-fashion) [pt players,](https://github.com/pt-players) and +
 
