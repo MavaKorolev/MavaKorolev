@@ -1,7 +1,7 @@
 ![1pt](https://github.com/MavaKorolev/MavaKorolev/blob/main/97%20Sem%20T%C3%ADtulo_20260816210605.png)
 
 <div align="center">
-. ݁₊ ⊹ Click him ↴. ݁˖ . ݁
+. ݁₊ ⊹ Click him (he is not aware he'll be replaced by chibi vodyanitsa)↴. ݁˖ . ݁
 </div>
 
 
