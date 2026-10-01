@@ -1,6 +1,6 @@
 <div align="center">
 
-. ݁₊ ⊹ ↴ wip . ݁˖ . ݁
+. ݁₊ ⊹ ↴ Jingran themed profile soon (until i draw him ≠ soon) . ݁˖ . ݁
 </div>
 
 
