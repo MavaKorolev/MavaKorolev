@@ -4,7 +4,7 @@
 </div>
 
 
-[![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/116%20Sem%20T%C3%ADtulo_20261002182051.png)](https://mavakorolev.straw.page)
+[![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/30748-removebg-preview.png)](https://mavakorolev.straw.page)
 
 
 
