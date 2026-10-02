@@ -3,10 +3,12 @@
 . ݁₊ ⊹ ↴ Pet the kitty  . ݁˖ . ݁
 </div>
 
+<div align="center">
+ 
 
 [![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/30748-removebg-preview.png)](https://mavakorolev.straw.page)
 
-
+</div>
 
  
 <div align="center">
