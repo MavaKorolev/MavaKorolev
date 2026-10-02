@@ -1,10 +1,10 @@
 <div align="center">
 
-. ݁₊ ⊹ ↴ Jingran themed profile soon (until i draw him ≠ soon) . ݁˖ . ݁
+. ݁₊ ⊹ ↴ Pet the kitty  . ݁˖ . ݁
 </div>
 
 
-[![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/98%20Sem%20T%C3%ADtulo_20260816210712.png)](https://mavakorolev.straw.page)
+[![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/116%20Sem%20T%C3%ADtulo_20261002182051.png)](https://mavakorolev.straw.page)
 
 
 
