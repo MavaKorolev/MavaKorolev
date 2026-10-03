@@ -2,7 +2,7 @@
 <div align="center">
  
 
-[![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/117%20Sem%20T%C3%ADtulo_20261003174607.png)](https://mavakorolev.straw.page)
+[![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/117%20Sem%20T%C3%ADtulo_20261003175402.png)](https://mavakorolev.straw.page)
 
 </div>
 
