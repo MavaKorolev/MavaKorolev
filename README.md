@@ -1,6 +1,6 @@
 <div align="center">
 
-. ݁₊ ⊹ ↴ Pet the kitty  . ݁˖ . ݁
+
 </div>
 
 <div align="center">
