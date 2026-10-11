@@ -1,11 +1,10 @@
 
 <div align="center">
  
-
-[![flin](https://github.com/MavaKorolev/MavaKorolev/blob/main/120%20Sem%20T%C3%ADtulo_20261003201917.png)](https://mavakorolev.straw.page)
-
+<a href="(https://mavakorolev.straw.page)">
+<img src="https://github.com/MavaKorolev/MavaKorolev/blob/main/120%20Sem%20T%C3%ADtulo_20261003201917.png" width="450">
 </div>
-
+</a>
  
 <div align="center">
 
