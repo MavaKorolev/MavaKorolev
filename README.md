@@ -13,6 +13,8 @@
 
 ⠀♱. Stra[w](https://mavakorolev.straw.page)
 
+⠀♱. Pinteres[t](www.pinterest.com/Mavakorolev)
+
 ⠀♱. Pronoun[s](https://en.pronouns.page/@Mavakoro)
 
 ⠀♱. Discor[d](https://discord.com/users/1536794455808540672)
