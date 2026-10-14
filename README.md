@@ -13,7 +13,7 @@
 
 ⠀♱. Stra[w](https://mavakorolev.straw.page)
 
-⠀♱. Pinteres[t](www.pinterest.com/Mavakorolev)
+⠀♱. Pinteres[t](https://pin.it/2fwVy1CMj)
 
 ⠀♱. Pronoun[s](https://en.pronouns.page/@Mavakoro)
 
