@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://github.com/MavaKorolev/MavaKorolev/blob/main/32147-removebg-preview.png" width="100%" alt="Header Banner" />
+</p>
+
 <table>
   <tr>
     <td width="55%" align="center" valign="top">
